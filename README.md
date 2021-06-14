@@ -2,6 +2,7 @@ CEO na <a href="https://agencia.quartosete.com/">Agencia Especializada em SEO na
 CEO na <a href="https://quartosete.com/">Quarto Sete Outlet</a><br>
 Analista de SEO: <a href="https://www.cursoparaielts.com.br/ielts/">Ielts</a><br>
 Artigos de rankeamento:<br>
+<a href="https://www.cursoparaielts.com.br/oet-test-brazil/">OET Teste</a><br>
 <a href="https://www.cursoparaielts.com.br/universidade-oxford/">Universidade Oxford</a><br>
 <a href="https://www.cursoparaielts.com.br/universidade-da-columbia-britanica/">columbia britanica</a><br>
 <a href="https://www.cursoparaielts.com.br/universidade-columbia/">Universidade Columbia</a><br>
