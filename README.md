@@ -3,6 +3,7 @@ CEO na <a href="https://quartosete.com/">Quarto Sete Outlet</a><br>
 Analista de SEO: <a href="https://www.cursoparaielts.com.br/ielts/">Ielts</a><br>
 Artigos de rankeamento:<br>
 <a href="https://www.cursoparaielts.com.br/curso-de-pte-academic/">PTE</a><br>
+<a href="https://www.cursoparaielts.com.br/proficiencia-em-ingles/">proficiência em inglês</a><br>
 <a href="https://www.cursoparaielts.com.br/expressoes-idiomaticas-em-ingles/">expressoes idiomaticas em ingles</a><br>
 <a href="https://www.cursoparaielts.com.br/express-entry-canada/" rel="dofollow">Express Entry Canada</a><br>
 <a href="https://www.cursoparaielts.com.br/brasilia/">Ielts brasilia</a><br>
