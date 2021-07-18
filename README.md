@@ -2,7 +2,7 @@ CEO na <a href="https://agencia.quartosete.com/">Agencia Especializada em SEO na
 CEO na <a href="https://quartosete.com/">Quarto Sete Outlet</a><br>
 Analista de SEO: <a href="https://www.cursoparaielts.com.br/ielts/">Ielts</a><br>
 Artigos de rankeamento:<br>
-<a href="https://www.cursoparaielts.com.br/medicina-nos-eua/">Medicina nos EUA</a><br><a href="https://www.cursoparaielts.com.br/medicina-na-australia/">Medicina na Australia</a><br>
+<a href="https://www.cursoparaielts.com.br/medicina-nos-eua/">Medicina nos EUA</a><br><a href="https://www.cursoparaielts.com.br/melhores-faculdades-de-medicina-do-mundo/">Melhores faculdades de medicina do mundo</a><br><a href="https://www.cursoparaielts.com.br/medicina-na-australia/">Medicina na Australia</a><br>
 <a href="https://www.cursoparaielts.com.br/residencia-medica-na-inglaterra/">Residencia Medica na Inglaterra</a><br><a href="https://www.cursoparaielts.com.br/como-ser-dentista-nos-eua/">Como ser dentista nos eua</a><br>
 <a href="https://www.cursoparaielts.com.br/residencia-medica-no-canada/">Residência Médica no Canadá</a><br>
 <a href="https://www.cursoparaielts.com.br/prova-para-validar-diploma-de-medicina/">Prova Para validar Diploma de Medicina</a><br>
